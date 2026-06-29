@@ -1,4 +1,4 @@
-# 
+# Inteligente AI Plagiarism Checker modelos. Com ética de IA e segurança de IA — otimizado para máximo desempenho.
 
 
 
